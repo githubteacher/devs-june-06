@@ -1,7 +1,7 @@
 # Muscat, Oman
 
 ## Great Beaches
-- Clean
+- Clean white sand
 ## Beautiful Mountains
 - Wonderful terrain
 ## Relaxing Corniche
