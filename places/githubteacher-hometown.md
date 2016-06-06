@@ -9,6 +9,7 @@
 ## Fun things to Do
 
 - Go hiking at Raven Rock if you :heart: the outdoors.
+- Check out the Museum of Science in downtown Raleigh!
 
 ## Local Nightlife
 
