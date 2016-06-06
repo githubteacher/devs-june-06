@@ -6,6 +6,8 @@
 
 ## Fun things to do
 ### Metro to DC
+### DC Zoo
 
 ## Parks
 ### Petapsco State Park
+### Lake Artemesia
