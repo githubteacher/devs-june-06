@@ -14,3 +14,4 @@
 
 ##### Places to Relax
   1. Amma Yoga at Pondicherry
+  2. Relaxing Yoga at your foot steps.
