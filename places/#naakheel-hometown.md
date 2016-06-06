@@ -2,6 +2,7 @@
 
 ## Great Beaches
 - Clean white sand
+- Sawadi, qurum some of the best
 ## Beautiful Mountains
 - Wonderful terrain
 ## Relaxing Corniche
