@@ -4,6 +4,7 @@
 
 - Aviator's Brewery and Smoke House (never had the brews but the food is amazing)!
 - Cooley's is a local tradition
+- Snoopy's is famous for its Hot Dogs
 
 ## Fun things to Do
 
