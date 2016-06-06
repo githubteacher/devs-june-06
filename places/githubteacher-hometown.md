@@ -12,3 +12,4 @@
 ## Local Nightlife
 
 - Fainting Goats is always hopping!
+- There is a fun midnight trail trek at Harris Lake!
