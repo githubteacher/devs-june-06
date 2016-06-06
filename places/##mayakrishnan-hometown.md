@@ -11,3 +11,6 @@
 #### Fun things to do
   1. MGM resort
   2. Kishkintha water resort
+
+##### Places to Relax
+  1. Amma Yoga at Pondicherry
