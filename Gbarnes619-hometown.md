@@ -21,3 +21,5 @@
 #### The only problem is, when people come they never leave !!!
 
 #### Make sure you emjoy the grunion run if you are here in season :smile:
+
+#### Bonfire on the beach is a fantastic plan too.  Hot Dogs are best over a fire.
