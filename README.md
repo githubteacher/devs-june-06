@@ -8,3 +8,7 @@
 1. Please [comment on Issue #2](https://github.com/githubteacher/devs-june-06/issues/2) to be added as a collaborator to this repo.
 2. Join us on Gitter to ask any questions or get help during class:  
 [![Join the chat at https://gitter.im/githubteacher/devs-june-06](https://badges.gitter.im/githubteacher/devs-june-06.svg)](https://gitter.im/githubteacher/devs-june-06?utm_source=badge&utm_medium=badge&utm_campaign=pr-badge&utm_content=badge)
+
+### Before You Leave
+
+- Please complete the [class survey]( https://www.surveymonkey.com/r/LYVYL6V). This is requested by Intuit and your feedback will be provided directly to your employer!
